@@ -1,4 +1,4 @@
-# TeamPINGMA-Project-IDEAS
+# TeamPINGMAX-Project-IDEAS
 Project ideas for Team PINGMA
 
 
