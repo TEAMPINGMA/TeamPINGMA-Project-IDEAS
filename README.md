@@ -1,8 +1,8 @@
-# TeamPINGMAX-Project-IDEAS
+# TeamPINGMA-Project-IDEAS
 Project ideas for Team PINGMA
 
 
-Hi TeamPINGMAX!!!
+Hi TeamPINGMA!!!
 
 
 It's Malia here, just letting you all know that I have created the minutes for yesterday 15/10/2019 and posted it to canvas. 
